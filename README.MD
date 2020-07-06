@@ -1,1 +1,1 @@
-Tinder for your Dog
+Tinder for your Doggie
